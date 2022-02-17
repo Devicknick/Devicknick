@@ -1,1 +1,1 @@
-IM NEWBIE
+Belajar tentang Coding
